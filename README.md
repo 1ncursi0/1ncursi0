@@ -1,8 +1,6 @@
-- 👋 Hi, I’m @1ncursi0
-- 👀 I’m interested in coding discord bots <js, py, html>
-- 🌱 I’m currently learning python
-- 💞️ I’m looking to collaborate on ur mum
-- 📫 How to reach me <my discord is Incursio#1111>
+4dingoes#4994 
+- cuz fart in my face wahiyat
+- west coast classix 
 - the the the the the the the the the
 
 <!---
